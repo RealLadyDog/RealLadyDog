@@ -26,6 +26,10 @@ Lazy to think.
 
 Think before you whisper; either act.
 
+Falling in love with me is not allowed.
+
+<img width="400" height="148" alt="tumblr_13d8fc05ef0f27b040938d545924dcea_216f8dfc_400" src="https://github.com/user-attachments/assets/2997c544-eeed-4a77-8e96-ceb0c4aef0af" />
+
 
 
 
