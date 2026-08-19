@@ -1,13 +1,26 @@
 <div align="center">
   
 # 🩵About Me🩵
-Hello! I'm Lady. From Lady and the Tramp. My birthday is November 9. I am VERY related to Lady and the Tramp. I really love cuddle piles and hugs. 
+Hello! I'm Lady. From Lady and the Tramp. My birthday is November 9. I am VERY related to Lady and the Tramp. 
 <p align="center">
-  
+
+# About Pony Town
+
+I'm always offtab (not always) on Pony Town.
+
+I don't like getting covered by people. (-if permitted for friends)
+
+I really love cuddle piles and hugs. 
+
+If you see me in the library or in the bakery talking to someone or my friends. (Yes, I am active in those areas!) Try to interact with me! I don't mind! unless you read the cautions.
+
 # 🩵Interest🧡
 Usually loves to draw, watch, play games, listen to music, and sleep!
 
 My favorite colors are cyan and orange, which I love both. 🩵🧡
+
+I love dinosaurs and animals (not bugs).
+
 
 # ⚠️Caution☢️
 My Lady's skin is not well permitted to be copied.
