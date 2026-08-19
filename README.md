@@ -12,7 +12,7 @@ I don't like getting covered by people. (-if permitted for friends)
 
 I really love cuddle piles and hugs. 
 
-If you see me in the library or in the bakery talking to someone or my friends. (Yes, I am active in those areas!) Try to interact with me! I don't mind! unless you read the cautions.
+If you see me in the library or in the bakery talking to someone or my friends. (Yes, I am active in those areas!) Try to interact with me! I don't mind! unless you read the cautions. (Please whisper me! I might be afk and miss the interactions!)
 
 # 🩵Interest🧡
 Usually loves to draw, watch, play games, listen to music, and sleep!
@@ -21,6 +21,7 @@ My favorite colors are cyan and orange, which I love both. 🩵🧡
 
 I love dinosaurs and animals (not bugs).
 
+Usually love interactions.
 
 # ⚠️Caution☢️
 My Lady's skin is not well permitted to be copied.
