@@ -38,6 +38,8 @@ I really love cuddle piles and hugs.
 
 If you see me in the library, in the bakery, or on the campsite talking to someone or my friends. (Yes, I am active in those areas!) Try to interact with me! I don't mind! unless you read the cautions. (Please whisper me! I might be afk and miss the interactions!)
 
+I will allow you to use the Tramp character to cuddle the pile or hug!
+
 # 🩵Interest🧡
 Usually loves to draw, watch, play games, listen to music, and sleep!
 
@@ -67,5 +69,7 @@ Under 10 or 13 months.
 Gibberish persons that I cannot understand about it.
 
 Please do not try to spam whispering to me if you willing be friends with me.
+
+Please don't force me to do something that is weird.
 
 <div align="center">
