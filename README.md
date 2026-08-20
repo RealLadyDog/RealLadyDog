@@ -26,7 +26,7 @@ Hello! I'm Lady. My nicknames are Pidge/Pidgeon (From Tramp), Lassie (From Jock)
 <img width="293" height="77" alt="Screenshot 2026-08-19 190335" src="https://github.com/user-attachments/assets/6187c7ad-4bfe-4e43-b54f-acb7aa4fbac3" />
 
 
-I'm always offtab (not always) on Pony Town.
+I'm always offtab (not always busy) on Pony Town.
 
 I don't like getting covered by people. (-if permitted for friends)
 
