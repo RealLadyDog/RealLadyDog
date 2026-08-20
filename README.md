@@ -75,7 +75,7 @@ Please do not try to spam whispering to me if you willing be friends with me.
 
 Please don't force me to do something that is weird.
 
-Telling your ACTUALLY real name is completely avoided.
+Telling your ACTUALLY real name or age is completely avoided. -(If permitted)
 
 <div align="center">
   
