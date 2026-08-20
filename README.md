@@ -38,7 +38,7 @@ I really love cuddle piles and hugs.
 
 If you see me in the library, in the bakery, or on the campsite talking to someone or my friends. (Yes, I am active in those areas!) Try to interact with me! I don't mind! unless you read the cautions. (Please whisper me! I might be afk and miss the interactions!)
 
-I will permit you to utilize the Tramp character to cuddle the pile, embrace the Tramp character to cuddle the pile, hug, or sit behind me!
+I will permit you to utilize the Tramp character, embrace the Tramp character to cuddle the pile, hug, or sit behind me!
 
 I usually really do not like seeing my Lady's skin, so come cuddle with me!
 
