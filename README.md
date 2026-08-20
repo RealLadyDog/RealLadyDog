@@ -54,6 +54,9 @@ Usually love interactions.
 I usually sleep all the time in a pony town, but I'm always active (not always busy).
 
 # ⚠️Caution☢️
+
+<img width="250" height="250" alt="tumblr_075621e75743b3f035c8a5ad391622db_c91cbb29_250" src="https://github.com/user-attachments/assets/e9c0e2f7-12a7-494d-b692-39cbce5c2060" />
+
 My Lady's skin is not well permitted to be copied.
 
 Mindheaded/Mindhead (Means copying ideas)
@@ -75,5 +78,14 @@ Gibberish persons that I cannot understand about it.
 Please do not try to spam whispering to me if you willing be friends with me.
 
 Please don't force me to do something that is weird.
+
+<img width="250" height="159" alt="tumblr_210cd236859176bcd2e64e550e73c0cb_bef990eb_250" src="https://github.com/user-attachments/assets/1d1461c5-da29-4495-a837-74002bdde1b8" />
+<img width="250" height="135" alt="tumblr_papcpmwIPj1whpmzao3_250" src="https://github.com/user-attachments/assets/6708ad86-3ca6-4a14-a6b4-c7d253e94e0a" />
+<img width="245" height="165" alt="tumblr_6306a70c05faba3cb0fd6a4f81ae5048_c6154ce6_250" src="https://github.com/user-attachments/assets/b9e70e6e-80e6-4f04-adb0-05a07c51b695" />
+
+
+# ${\textsf{\color{#60a4b0}𝓜𝓮 𝓪𝓷𝓭 𝓶𝔂 𝓗𝓾𝓼𝓫𝓪𝓷𝓭}}$
+
+
 
 <div align="center">
