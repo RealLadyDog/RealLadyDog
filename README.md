@@ -40,7 +40,7 @@ I usually really do not like seeing my Lady's skin, so come cuddle piles, hug, a
 
 Seeing public messages is fine, but seeing spam messages is now completely avoided.
 
-
+If I see you copying me on GitHub or Pony Town, it's a horrible decision. (But if you make a mistake or apologize to me, I will simply forgive you. But if you do not apologize to me right away, I will not forgive you.)
 
 # 🩵Interest🧡
 Usually loves to draw, watch, play games, listen to music, and sleep!
@@ -80,6 +80,8 @@ Please do not try to spam whispering to me if you willing be friends with me.
 Please don't force me to do something that is weird.
 
 Telling your ACTUALLY real name or age is completely avoided. -(If permitted for friends)
+
+Uncomfortable getting copied.
 
 <div align="center">
   
