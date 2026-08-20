@@ -38,7 +38,9 @@ I really love cuddle piles and hugs.
 
 If you see me in the library, in the bakery, or on the campsite talking to someone or my friends. (Yes, I am active in those areas!) Try to interact with me! I don't mind! unless you read the cautions. (Please whisper me! I might be afk and miss the interactions!)
 
-I will allow you to use the Tramp character to cuddle the pile or hug!
+I will permit you to utilize the Tramp character to cuddle the pile, embrace the Tramp character to cuddle the pile, hug, or sit behind me!
+
+I usually really do not like seeing my Lady's skin, so come cuddle with me!
 
 # 🩵Interest🧡
 Usually loves to draw, watch, play games, listen to music, and sleep!
@@ -48,6 +50,8 @@ My favorite colors are cyan and orange, which I love both. 🩵🧡
 I love dinosaurs and animals (not bugs).
 
 Usually love interactions.
+
+I usually sleep all the time in a pony town, but I'm always active (not always busy).
 
 # ⚠️Caution☢️
 My Lady's skin is not well permitted to be copied.
