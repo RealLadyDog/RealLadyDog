@@ -21,7 +21,7 @@
 Hello! I'm Lady. My nicknames are Pidge/Pidgeon (From Tramp), Lassie (From Jock), and Miss Lady Ma'am (From Trusty). I'm from Lady and the Tramp. My birthday is November 9. I am VERY related to Lady and the Tramp. I may be a dog, but I am kind and gentle. I don't bite. But my husband named Tramp will bite you if you dare ship me with other dogs. I am a shy dog + curious + angry + excited + happy.
 <p align="center">
 
-# About 🐴Pony Town🏢
+# About 🐴Pony Town🏢 Facts
 
 <img width="293" height="77" alt="Screenshot 2026-08-19 190335" src="https://github.com/user-attachments/assets/6187c7ad-4bfe-4e43-b54f-acb7aa4fbac3" />
 
@@ -36,7 +36,11 @@ If you see me in the library, in the bakery, or on the campsite talking to someo
 
 I will permit you to utilize the Tramp character, embrace the Tramp character to cuddle the pile, hug, or sit behind me!
 
-I usually really do not like seeing my Lady's skin, so come cuddle with me!
+I usually really do not like seeing my Lady's skin, so come cuddle piles, hug, and snuggle with me!
+
+Seeing public messages is fine, but seeing spam messages is now completely avoided.
+
+
 
 # 🩵Interest🧡
 Usually loves to draw, watch, play games, listen to music, and sleep!
@@ -49,7 +53,7 @@ Usually love interactions.
 
 I usually sleep all the time in a pony town, but I'm always active (not always busy).
 
-# ⚠️Caution☢️
+# ⚠️Cautions☢️
 
 <img width="250" height="250" alt="tumblr_075621e75743b3f035c8a5ad391622db_c91cbb29_250" src="https://github.com/user-attachments/assets/e9c0e2f7-12a7-494d-b692-39cbce5c2060" />
 
