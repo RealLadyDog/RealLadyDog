@@ -75,6 +75,8 @@ Please do not try to spam whispering to me if you willing be friends with me.
 
 Please don't force me to do something that is weird.
 
+Telling your ACTUALLY real name is completely avoided.
+
 <div align="center">
   
 <img width="400" height="148" alt="tumblr_13d8fc05ef0f27b040938d545924dcea_216f8dfc_400" src="https://github.com/user-attachments/assets/114e6bde-a49f-44d8-b31f-c25f50776d74" />
