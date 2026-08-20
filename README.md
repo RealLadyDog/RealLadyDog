@@ -18,7 +18,7 @@
 <img width="100" height="100" alt="tumblr_d4e6f20cef99c531cb0236215724f505_f081c07a_100" src="https://github.com/user-attachments/assets/9095704f-99f2-43ce-a1cc-9a479c883411" />
 
 
-Hello! I'm Lady. From Lady and the Tramp. My birthday is November 9. I am VERY related to Lady and the Tramp. 
+Hello! I'm Lady. My nicknames are Pidge/Pidgeon, Lassie, and Miss Lady Ma'am. I'm from Lady and the Tramp. My birthday is November 9. I am VERY related to Lady and the Tramp. I may be a dog, but I am kind and gentle. I don't bite. But my husband Tramp will bite you if you dare ship me with other dogs.
 <p align="center">
 
 # About 🐴Pony Town🏢
