@@ -4,11 +4,7 @@
 
 <div align="center">
   
-<img width="400" height="267" alt="tumblr_93a311826af99cacdd66f17581a0b981_0c986404_400" src="https://github.com/user-attachments/assets/1738a5ae-6b9c-44ad-8e59-5975e3bc3ec8" />
-<div align="center">
-<img width="400" height="148" alt="tumblr_13d8fc05ef0f27b040938d545924dcea_216f8dfc_400" src="https://github.com/user-attachments/assets/114e6bde-a49f-44d8-b31f-c25f50776d74" />
-<div align="center">
-  <img width="400" height="267" alt="tumblr_3fac6ccf2950efe1e939d992c947224a_11fa9046_400" src="https://github.com/user-attachments/assets/db301343-e273-4b2c-b5f6-c66ceccd5902" />
+
 
 
 <div align="center">
@@ -79,10 +75,17 @@ Please do not try to spam whispering to me if you willing be friends with me.
 
 Please don't force me to do something that is weird.
 
+<div align="center">
+  
+<img width="400" height="148" alt="tumblr_13d8fc05ef0f27b040938d545924dcea_216f8dfc_400" src="https://github.com/user-attachments/assets/114e6bde-a49f-44d8-b31f-c25f50776d74" />
+
+<div align="center">
+  
 <img width="250" height="159" alt="tumblr_210cd236859176bcd2e64e550e73c0cb_bef990eb_250" src="https://github.com/user-attachments/assets/1d1461c5-da29-4495-a837-74002bdde1b8" />
 <img width="250" height="135" alt="tumblr_papcpmwIPj1whpmzao3_250" src="https://github.com/user-attachments/assets/6708ad86-3ca6-4a14-a6b4-c7d253e94e0a" />
 <img width="245" height="165" alt="tumblr_6306a70c05faba3cb0fd6a4f81ae5048_c6154ce6_250" src="https://github.com/user-attachments/assets/b9e70e6e-80e6-4f04-adb0-05a07c51b695" />
-
+<img width="400" height="267" alt="tumblr_93a311826af99cacdd66f17581a0b981_0c986404_400" src="https://github.com/user-attachments/assets/1738a5ae-6b9c-44ad-8e59-5975e3bc3ec8" />
+<img width="400" height="267" alt="tumblr_3fac6ccf2950efe1e939d992c947224a_11fa9046_400" src="https://github.com/user-attachments/assets/db301343-e273-4b2c-b5f6-c66ceccd5902" />
 
 # ${\textsf{\color{#60a4b0}𝓜𝓮 𝓪𝓷𝓭 𝓶𝔂 𝓗𝓾𝓼𝓫𝓪𝓷𝓭}}$
 
