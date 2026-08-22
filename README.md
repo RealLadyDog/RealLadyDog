@@ -19,7 +19,7 @@
 
 <p align="center">
 
-Hello! I'm Lady. My nicknames are Pidge/Pidgeon (from Tramp), Lassie (from Jock), and Miss Lady Ma'am (from Trusty). I'm from the Lady and the Tramp Disney show. My birthday is November 9. I am VERY related to Lady and the Tramp. I may be a dog, but I am kind and gentle. I don't bite. But my husband named Tramp will bite you if you dare ship me with other dogs. I am a shy dog + curious + angry + excited + happy.
+Hello! I'm Lady. I go by She/Her. My nicknames are Pidge/Pidgeon (from Tramp), Lassie (from Jock), and Miss Lady Ma'am (from Trusty). I'm from the Lady and the Tramp Disney show. My birthday is November 9. I am VERY related to Lady and the Tramp. I may be a dog, but I am kind and gentle. I don't bite. But my husband named Tramp will bite you if you dare ship me with other dogs. I am a shy dog + curious + angry + excited + happy.
 
 <p align="center">
 
@@ -30,7 +30,7 @@ Hello! I'm Lady. My nicknames are Pidge/Pidgeon (from Tramp), Lassie (from Jock)
 <p align="center">
 
 
-I'm always offtab (not always busy) on Pony Town.
+I'm always offtab and afk (not always busy) on Pony Town.
 
 I don't like getting covered by crowd people. (-if permitted for friends)
 
@@ -47,6 +47,10 @@ Seeing public messages is fine, but seeing spam messages is now completely avoid
 If I see you copying me on GitHub or Pony Town, it's a horrible and worse decision. (But if you make a mistake or apologize to me, I will simply forgive you. But if you do not apologize to me right away, I will not forgive you.)
 
 If I cuddle with you or sit behind you, it means I like your skin!
+
+Loves to give free crowns by whispering!
+
+I do not have a DNI on my bio yet (yes, you can interact with me), but I have a DNC on my bio.
 
 # 🩵Interest🧡
 
