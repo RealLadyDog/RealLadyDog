@@ -44,7 +44,9 @@ I usually really do not like seeing my Lady's skin, so come cuddle piles, hug, a
 
 Seeing public messages is fine, but seeing spam messages is now completely avoided.
 
-If I see you copying me on GitHub or Pony Town, it's a horrible decision. (But if you make a mistake or apologize to me, I will simply forgive you. But if you do not apologize to me right away, I will not forgive you.)
+If I see you copying me on GitHub or Pony Town, it's a horrible and worse decision. (But if you make a mistake or apologize to me, I will simply forgive you. But if you do not apologize to me right away, I will not forgive you.)
+
+If I cuddle with you or sit behind you, it means I like your skin!
 
 # 🩵Interest🧡
 
