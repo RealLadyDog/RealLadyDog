@@ -82,7 +82,7 @@ My Lady's skin is not well permitted to be copied.
 
 Mindheaded/Mindhead (Means copying ideas)
 
-Not always here to roleplay.
+Not always here to roleplay (if permitted). (But loves to roleplay at a roleplay party!)
 
 Darkshippers and proshippers are completely avoided.
 
