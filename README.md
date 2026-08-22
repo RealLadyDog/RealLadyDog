@@ -17,6 +17,7 @@
   
 <img width="100" height="100" alt="tumblr_d4e6f20cef99c531cb0236215724f505_f081c07a_100" src="https://github.com/user-attachments/assets/9095704f-99f2-43ce-a1cc-9a479c883411" />
 
+<p align="center">
 
 Hello! I'm Lady. My nicknames are Pidge/Pidgeon (From Tramp), Lassie (From Jock), and Miss Lady Ma'am (From Trusty). I'm from Lady and the Tramp. My birthday is November 9. I am VERY related to Lady and the Tramp. I may be a dog, but I am kind and gentle. I don't bite. But my husband named Tramp will bite you if you dare ship me with other dogs. I am a shy dog + curious + angry + excited + happy.
 <p align="center">
@@ -25,10 +26,12 @@ Hello! I'm Lady. My nicknames are Pidge/Pidgeon (From Tramp), Lassie (From Jock)
 
 <img width="293" height="77" alt="Screenshot 2026-08-19 190335" src="https://github.com/user-attachments/assets/6187c7ad-4bfe-4e43-b54f-acb7aa4fbac3" />
 
+<p align="center">
+
 
 I'm always offtab (not always busy) on Pony Town.
 
-I don't like getting covered by people. (-if permitted for friends)
+I don't like getting covered by crowd people. (-if permitted for friends)
 
 I really love cuddle piles and hugs. 
 
@@ -43,6 +46,9 @@ Seeing public messages is fine, but seeing spam messages is now completely avoid
 If I see you copying me on GitHub or Pony Town, it's a horrible decision. (But if you make a mistake or apologize to me, I will simply forgive you. But if you do not apologize to me right away, I will not forgive you.)
 
 # 🩵Interest🧡
+
+<p align="center">
+
 Usually loves to draw, watch, play games, listen to music, and sleep!
 
 My favorite colors are cyan and orange, which I love both. 🩵🧡
@@ -51,11 +57,15 @@ I love dinosaurs and animals (not bugs).
 
 Usually love interactions.
 
-I usually sleep all the time in a pony town, but I'm always active (not always busy).
+I usually sleep all the time in pony town, but I'm always active (not always busy).
+
+My favorite food and drink in Pony Town is blueberry cake and coffee! 
 
 # ⚠️Cautions☢️
 
 <img width="250" height="250" alt="tumblr_075621e75743b3f035c8a5ad391622db_c91cbb29_250" src="https://github.com/user-attachments/assets/e9c0e2f7-12a7-494d-b692-39cbce5c2060" />
+
+<p align="center">
 
 My Lady's skin is not well permitted to be copied.
 
