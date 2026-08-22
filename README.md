@@ -19,7 +19,8 @@
 
 <p align="center">
 
-Hello! I'm Lady. My nicknames are Pidge/Pidgeon (From Tramp), Lassie (From Jock), and Miss Lady Ma'am (From Trusty). I'm from Lady and the Tramp. My birthday is November 9. I am VERY related to Lady and the Tramp. I may be a dog, but I am kind and gentle. I don't bite. But my husband named Tramp will bite you if you dare ship me with other dogs. I am a shy dog + curious + angry + excited + happy.
+Hello! I'm Lady. My nicknames are Pidge/Pidgeon (from Tramp), Lassie (from Jock), and Miss Lady Ma'am (from Trusty). I'm from the Lady and the Tramp Disney show. My birthday is November 9. I am VERY related to Lady and the Tramp. I may be a dog, but I am kind and gentle. I don't bite. But my husband named Tramp will bite you if you dare ship me with other dogs. I am a shy dog + curious + angry + excited + happy.
+
 <p align="center">
 
 # About 🐴Pony Town🏢 Facts
