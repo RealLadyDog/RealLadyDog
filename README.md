@@ -68,8 +68,12 @@ I usually sleep all the time in pony town, but I'm always active (not always bus
 
 My favorite food and drink in Pony Town is blueberry cake and coffee! 
 
+
+
 # ⚠️Cautions☢️
 
+# ${\textsf{\color{#ff0000}⚠︎𝗕𝗲𝘄𝗮𝗿𝗲 𝗼𝗳 𝘁𝗵𝗲 𝗟𝗮𝗱𝘆 𝗮𝗻𝗱 𝘁𝗵𝗲 𝗧𝗿𝗮𝗺𝗽⚠︎}}$
+ 
 <img width="250" height="250" alt="tumblr_075621e75743b3f035c8a5ad391622db_c91cbb29_250" src="https://github.com/user-attachments/assets/e9c0e2f7-12a7-494d-b692-39cbce5c2060" />
 
 <p align="center">
