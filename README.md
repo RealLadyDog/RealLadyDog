@@ -104,6 +104,8 @@ Telling your ACTUALLY real name or age is completely avoided. -(If permitted for
 
 Uncomfortable getting copied.
 
+Do not tell me the movie spoilers.
+
 <div align="center">
 
 # ${\textsf{\color{#60a4b0}🩵𝓜𝓮 𝓪𝓷𝓭 𝓶𝔂 𝓗𝓾𝓼𝓫𝓪𝓷𝓭🩵}}$  
