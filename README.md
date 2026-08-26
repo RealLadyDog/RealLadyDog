@@ -66,7 +66,7 @@ Usually love interactions.
 
 I usually sleep all the time in pony town, but I'm always active (not always busy).
 
-My favorite food and drink in Pony Town is blueberry cake and coffee! 
+My favorite food and drink in Pony Town is blueberry cake, coffee, and cookie! 
 
 
 
